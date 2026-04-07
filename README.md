@@ -1,0 +1,1 @@
+# visagio-rocket-lab-arquitetura-medalhao
